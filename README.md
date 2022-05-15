@@ -6,8 +6,8 @@
 - Email: prosenjit.uar@gmail.com
 - Phone & WhatsApp: +8801987045083
 - Linkedin: https://www.linkedin.com/in/prosenjit-xyz/
-- My Company Web 1: https://www.cyoam.com/
-- My Company Web 2: https://www.shombor.com/
+- Officil Website: https://www.cyoam.com/
+- Personal: https://pro.cyoam.com/
 
 
 <!---
