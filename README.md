@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on any Business
 - 📫 How to reach me ...
 - Email: prosenjit.uar@gmail.com
-- Phone & WhatsApp: +8801987045083
+- Phone/WhatsApp/Line/WeChat: +8801987045083
 - Linkedin: https://www.linkedin.com/in/prosenjit-xyz/
 - Officil Website: https://www.cyoam.com/
 - Personal: https://pro.cyoam.com/
