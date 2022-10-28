@@ -4,7 +4,7 @@
 - 📫 How to reach me ...
 - Email: prosenjit.uar@gmail.com
 - Phone/WhatsApp/Line/WeChat: +8801987045083
-- Linkedin: https://www.instagram.com/prosenjit.xyz/
+- Linkedin: https://www.linkedin.com/in/prosenjit-xyz/
 
 <!---
 ProsenjitKumar/ProsenjitKumar is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
